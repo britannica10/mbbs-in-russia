@@ -2,7 +2,7 @@ MBBS in Russia: Complete Guide for Indian Students (2026)
 
 If you are planning to pursue MBBS abroad, Russia has emerged as one of the most preferred destinations for Indian students. With affordable fees, globally recognized degrees, and quality education, studying MBBS in Russia is a smart and practical choice.
 
-👉 Read more: MBBS in Russia
+👉 Read more: https://www.tutelagestudy.com/destinations/mbbs-in-russia/
 
 Why Choose MBBS in Russia?
 
